@@ -1,0 +1,1 @@
+# Gadalka_Lr7
